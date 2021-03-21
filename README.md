@@ -1,6 +1,6 @@
-### Hi there, I'm GmHasan [Gazi Mehedi Hasan][website] 👋
+### 🙋 Hi there, I'm GmHasan [Gazi Mehedi Hasan][website] 👋
 
-## I'm a Student, Developer, and Teacher!!
+## I'm a Student, Developer, and Teacher !!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
